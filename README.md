@@ -1,0 +1,1 @@
+# Capo Optimizer Privacy Policy
